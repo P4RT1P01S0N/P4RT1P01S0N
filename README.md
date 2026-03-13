@@ -1,3 +1,17 @@
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/109f2c62-8b0f-4e82-86be-e6162c3270a8" />
+╭──────────. ִ ࣪ ⋆ ೀ ─╮
+         VIKTOR ᯓ.ᐟ
+╰─ ִ ࣪ ⋆ ೀ ──────────╯
 
+ִ ࣪𖤐 15 years old ! ִ
 
+ִ ࣪𖤐 **Kins** : Kinger , Jax , Silver
+
+ִ ࣪𖤐 ****DNI**** 
+
+ִ ࣪𖤐 Rasicm / Nazism , Proshippers , Darkshippers , Homophobic , Transphobic , AI "artists" , Pedophiles
+
+*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ
+
+𒐸Feel free to interact with me , I don't mind .ᐟ.ᐟ But **please** read my pronouns page first !
+
+𒐸 **I LOVE MY CHEMICAL ROMANCE SO MUCH <33 
