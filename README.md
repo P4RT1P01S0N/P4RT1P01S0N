@@ -14,7 +14,7 @@
 
 𒐸Feel free to interact with me , I don't mind .ᐟ.ᐟ But **please** read my pronouns page first !
 
-𒐸 **I LOVE MY CHEMICAL ROMANCE SO MUCH <33 
+𒐸 **I LOVE MY CHEMICAL ROMANCE SO MUCH <33** 
 
 <img width="149" height="153" alt="image" src="https://github.com/user-attachments/assets/9f241194-5c94-475c-bbdf-99934cbfa9e8" />
 <img width="111" height="111" alt="image" src="https://github.com/user-attachments/assets/9f1fd951-ee82-4274-986c-6409f9eff6e7" />
