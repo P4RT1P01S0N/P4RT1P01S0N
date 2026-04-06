@@ -2,13 +2,7 @@
          VIKTOR ᯓ.ᐟ
 ╰─ ִ ࣪ ⋆ ೀ ──────────╯
 
-ִ ࣪𖤐 15 years old ! ִ
-
 ִ ࣪𖤐 **Kins** : Kinger , Jax , Silver
-
-ִ ࣪𖤐 ****DNI**** 
-
-ִ ࣪𖤐 Rasicm / Nazism , Proshippers , Darkshippers , Homophobic , Transphobic , AI "artists" , Pedophiles
 
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ
 
